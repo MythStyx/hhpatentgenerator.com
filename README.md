@@ -1,2 +1,0 @@
-# hhpatentgenerator.com
-hhpatentgenerator.com
